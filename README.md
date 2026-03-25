@@ -16,3 +16,5 @@ Projects
 Goal
 To strengthen my technical skills and build a successful career in the IT field.
 
+Click on the file "self_introduction.mp4" above and select "View raw" to watch the video.
+
